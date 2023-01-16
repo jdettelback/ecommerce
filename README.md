@@ -16,4 +16,4 @@ Contact me at [jdettelback@gmail.com](mailto:jdettelback@gmail.com) if you have 
 
 Video walkthrough:
 
-https://drive.google.com/file/d/1ZoDbgkQvHA8tMY9V9mDzUBxYjz8TYRCQ/view
+https://drive.google.com/file/d/1Ra3Z3c63Tep7g9OilZt2csmhvkSIN_bW/view
